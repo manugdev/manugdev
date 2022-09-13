@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **manug24696@gmail.com**
 
-- 📄 Know about my experiences [https://rxresu.me/r/VQQL6ngJ](https://rxresu.me/r/VQQL6ngJ)
+- 📄 Know about my experiences [https://mnf.red/manugdev](https://mnf.red/manugdev)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
